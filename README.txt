@@ -1,0 +1,1 @@
+Sobstevenikyt i ednolichniqt pritejatel na fajla kojto dyrji prawata e Kristiqn Bonev 20320.
